@@ -1,1 +1,0 @@
-# ReportePractica1FP21CarlosAlbertoRodriguezSoriano
